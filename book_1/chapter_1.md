@@ -65,9 +65,9 @@ Mrs. Dursley sipped her tea through pursed lips. Mr. Dursley wondered whether he
 
 He decided to stfu as they finna upstairs to catch some z’s. While Mrs. Dursley took off her face, Mr. Dursley lurked in the bedroom window overlooking the front garden. The floof was still there. It was staring down Privet Drive as though it were waiting for something.
 
-Was he imagining things? Could all this have anything to do with the Potters? If it did... if it got out that they were related to a pair of – they would totes be cancelled.
+Was he tweakin? Could all this have anything to do with the Potters? If it did... if it got out that they were related to a pair of – they would totes be cancelled.
 
-The Dursleys got into bed. Mrs. Dursley crashed but Mr. Dursley couldn’t shake the intrusive thoughts. Finally he comforted himself that if the Potters were involved, there was no reason for them to invade the Dursley’s space. The Potters knew very well that he and his bae thought they were cringe and wanted nothing to do with their shenanigans... He couldn’t see how they could get all up in his business. They were probs safe and outta the way.
+The Dursleys got into bed. Mrs. Dursley crashed but Mr. Dursley couldn’t shake the intrusive thoughts. Finally he comforted himself that if the Potters were involved, there was no reason for them to be all up the Dursley’s business. The Potters knew very well that he and his bae thought they were cringe and wanted nothing to do with their shenanigans... He couldn’t see how they could get all up in his business. They were probs safe and outta the way.
 
 Hahahaha, nope.
 
